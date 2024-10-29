@@ -1,0 +1,1 @@
+"Fritz is pretty gay!"
